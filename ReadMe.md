@@ -1,4 +1,4 @@
-# 🌐 Harsh Gahlyan's Portfolio
+# 🌐 Akhil's Portfolio
 
 # 🚀 Live Portfolio: [Click Here](https://harsh0371.github.io/Portfolio/)
 
